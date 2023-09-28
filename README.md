@@ -5,6 +5,7 @@
 <br><br>
 🌟 | **Hobbies**<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;🎮 Video games<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;📷 Photography
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;📺 Anime<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;🎶 Music
 <br><br>
